@@ -1,0 +1,1 @@
+![avatar](https://github.com/tincochan/blog/blob/master/404/404-1.png?raw=true)
